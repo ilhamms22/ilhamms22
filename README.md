@@ -27,5 +27,5 @@ I am always seeking opportunities to **apply my skills** in practical settings t
 - **Cybersecurity & Cloud Computing**
 
 ## Contact & Social Media
-- **LinkedIn:** [Visit Profile](www.jaajhsa)
+- **LinkedIn:** [Visit Profile]([www.jaajhsa](https://www.linkedin.com/in/ilham-marwan-sidik-075a07248/))
 
